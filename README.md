@@ -1,1 +1,0 @@
-# sukichhiv.github.io
